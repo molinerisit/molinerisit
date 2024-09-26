@@ -23,11 +23,5 @@ Full-Stack Web Developer | Systems Engineering Student<br><br>I am a passionate 
 
 Julian Molineris 
 <!--  -->
-<!--  -->
 
-<!--  -->
-
-<!--  -->
-
-<!--  -->
 
